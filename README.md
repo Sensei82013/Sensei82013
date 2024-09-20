@@ -7,7 +7,7 @@ Building physical products.<br />
 Storytelling/writting.<br />
 Wildlife Photography.<br />
 Scuba diving.<br />
-Phylosophy.<br /> 
+Philosophy.<br /> 
 Drumming.<br />
 Botany.<br />
 
